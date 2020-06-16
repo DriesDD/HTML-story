@@ -8,4 +8,8 @@ I'm here to let it rain, rain, rain.
 Because it is important for the plants.
 The earth can only thrive if nature can blossom.
 
+
+And here I am just drowning in the rain, 
+Like a *madman* laughing at the rain.
+
 ![Ominous-Clouds](ominous-clouds.jpg)
