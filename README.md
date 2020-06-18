@@ -8,7 +8,7 @@ Today the sun did not come up. It might have, but **ominous clouds** shrouded th
 #### Because it is important for the plants.
 ### The earth can only thrive if nature can blossom.
 
-And here I am just drowning in the rain, 
+And here I am, just drowning in the rain, 
 Like a *madman* laughing at the rain.
 
 ![Ominous-Clouds](ominous-clouds.jpg)
